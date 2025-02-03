@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Caleb @Okwesie Arthur
-- 👀 I’m interested in Coding and Finance
+- 👀 I’m interested in Coding and Accounting
 - 🌱 I’m currently learning more about Computer Science
 - 💞️ I’m looking to collaborate on any project
 - 📫 How to reach me: arthurcaleb12@gmail.com
